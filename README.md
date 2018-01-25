@@ -1,1 +1,2 @@
 # ForensicsTools
+GLHF and HODL!
